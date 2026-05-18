@@ -1,4 +1,4 @@
-#  
+#  Instant bee swarm simulator script is the best bee swarm simulator script with undetectable and auto-farm. Safe, reliable, and optimized for maximum performance.
 
 
 
